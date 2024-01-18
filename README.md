@@ -6,4 +6,3 @@
 - 😄 Pronouns attack helicopter
 - ⚡ Fun fact I'm 18
 
-
